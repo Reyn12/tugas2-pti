@@ -10,5 +10,4 @@ sampai di Jakarta jam 14.30 WIB
 10122007 - Mochammad Rizky F<br>
 10122028 - Muhammad Hilmi F<br>
 10122038 - Hamid Abdul Aziz<br>
-10122039 - Mochamad Zaky Afrilliansyah<br>
 10122020 - Krisna A</p>
