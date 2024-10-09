@@ -4,3 +4,4 @@
 4. Patungan untuk Bensin
 5. Makan 3x
 6. Minuman untuk perjalanan
+7. Air untuk wudhu agar tidak tayamum
